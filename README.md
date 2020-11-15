@@ -1,4 +1,4 @@
 # bdixtester
 
-BIG UPDATE COMING SOON! STAY UPDATED!
-raihanraaz.me
+#BIG UPDATE COMING SOON! STAY UPDATED!
+#raihanraaz.me
